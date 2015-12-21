@@ -1,1 +1,0 @@
-# YahodzaUlangkaya_System
